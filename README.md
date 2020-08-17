@@ -3,7 +3,7 @@ Prodigal Fortnite Cheat Auth System Leaked
 
 
 Prodigal is owned by this retard paster kid ZeraX . This nigger RATs and Token logs people, plus a bunch of other shit.
-Here's all his info, feel free to fuck him up https://pastebin.com/L0M0GiU7
+Here's all his info, feel free to fuck him up https://doxbin.org/upload/KAZOZebraticZeraX
 
 So he pasted maven and then pasted an auth system Fingu#1337 (owner of https://cauth.me) made and there you have Prodigal.
 It's a complete joke, if you bought Prodigal I am concerned about your IQ.
